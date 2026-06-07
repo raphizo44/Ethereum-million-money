@@ -1,2 +1,6 @@
-# Ethereum-million-money
-*STEP TO CREATE TRUST WALLET AND JOIN MILLION MONEY*  *Download Trust wallet app* 👇👇👇👇 https://link.trustwallet.com/open_url?coin_id=60&amp;url=https://lk.million.money/a/273565/           👇 *Click on create wallet*         👇  *Write 12 phrase*(Note)         👇  *Verify phrase sequence*          👇  *Click on Ethereumm*          👇 *Click on receive*         👇 *Copy address*      👇 *Send to your me the admin for funding of your wallet $9 ethereum which cost you 1 time payment of 3500* ( promo) *~#3800~*        👇 *you are only exchanging naira for ethereum, just like you exchange naira for dollar*       👇 *After recieve 0.035 Eth*          👇  *click on DApp*         👇 *Copy and paste sponsor link on the Dapps browser* (Click search/enter)      👇 *Register* *( change language)*       👇 *Login atomatically*       👇 *To register*      👇 *Approve*  *Now REGISTRATION is complete*
+tap on my Private to dubble your income
+🤏whith your small income you can doble your earnings
+trade more on eathereum or btc to bosst your earnings
+👆
+htpwww.ethereuminvest
+☝
